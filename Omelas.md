@@ -153,7 +153,7 @@ be destroyed. Those are the terms. To exchange all the goodness and grace of eve
 Omelas for that single, small improvement: to throw away the happiness of thousands for the
 chance of the happiness of one: that would be to let guilt within the walls indeed.
 
-*_The terms are strict and absolute; there may not even be a kind word spoken to the child._*
+**The terms are strict and absolute; there may not even be a kind word spoken to the child.**
 
 Often the young people go home in tears, or in a tearless rage, when they have seen the
 child and faced this terrible paradox. They may brood over it for weeks or years. But as time
