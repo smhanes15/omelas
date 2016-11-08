@@ -96,7 +96,7 @@ the edge of the crowd, alone, playing on a wooden flute. People pause to listen,
 but they do not speak to him, for he never ceases playing and never sees them, his dark eyes
 wholly rapt in the sweet, thin magic of the tune.
 
-He finishes, and slowly lowers his hands holding the wooden flute.
+*He finishes, and slowly lowers his hands holding the wooden flute.*
 
 As if that little private silence were the signal, all at once a trumpet sounds from the
 pavilion near the starting line: imperious, melancholy, piercing. The horses rear on their slender
@@ -105,8 +105,8 @@ and soothe them, whispering, "Quiet, quiet, there my beauty, my hope. . . ." The
 in rank along the starting line. The crowds along the racecourse are like a field of grass and
 flowers in the wind. The Festival of Summer has begun.
 
-Do you believe? Do you accept the festival, the city, the joy? No? Then let me describe
-one more thing.
+*Do you believe? Do you accept the festival, the city, the joy? No? Then let me describe
+one more thing.*
 
 In a basement under one of the beautiful public buildings of Omelas, or perhaps in the
 cellar of one of its spacious private homes, there is a room. It has one locked door, and no
@@ -153,7 +153,7 @@ be destroyed. Those are the terms. To exchange all the goodness and grace of eve
 Omelas for that single, small improvement: to throw away the happiness of thousands for the
 chance of the happiness of one: that would be to let guilt within the walls indeed.
 
-The terms are strict and absolute; there may not even be a kind word spoken to the child.
+*_The terms are strict and absolute; there may not even be a kind word spoken to the child._*
 
 Often the young people go home in tears, or in a tearless rage, when they have seen the
 child and faced this terrible paradox. They may brood over it for weeks or years. But as time
@@ -173,8 +173,8 @@ the wretched one were not there snivelling in the dark, the other one, the flute
 make no joyful music as the young riders line up in their beauty for the race in the sunlight of the
 first morning of summer.
 
-Now do you believe in them? Are they not more credible? But there is one more thing to
-tell, and this is quite incredible.
+*Now do you believe in them? Are they not more credible? But there is one more thing to
+tell, and this is quite incredible.*
 
 At times one of the adolescent girls or boys who go to see the child does not go home to
 weep or rage, does not, in fact, go home at all. Sometimes also a man or woman much older falls
