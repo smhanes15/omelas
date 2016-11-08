@@ -24,7 +24,7 @@ broad green meadows one could hear the music winding through the city streets, f
 nearer and ever approaching, a cheerful faint sweetness of the air that from time to time trembled
 and gathered together and broke out into the great joyous clanging of the bells.
 
-Joyous! How is one to tell about joy? How describe the citizens of Omelas?
+*Joyous! How is one to tell about joy? How describe the citizens of Omelas?*
 
 They were not simple folk, you see, though they were happy. But we do not say the
 words of cheer much any more. All smiles have become archaic. Given a description such as this
